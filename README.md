@@ -1,0 +1,2 @@
+👋 Hello there! I'm Vibhavi Ekanayake, an enthusiastic 18-year-old web designer passionate about crafting visually stunning and user-friendly websites. 💻 When I'm not coding, you can find me exploring new design trends, experimenting with color palettes, or sketching out ideas for my next project. I believe in the power of clean code and creative design to leave a lasting impression. Let's connect and create something awesome together! 🚀
+
